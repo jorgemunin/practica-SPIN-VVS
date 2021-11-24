@@ -1,0 +1,1 @@
+# practica-SPIN-VVS
